@@ -3,11 +3,11 @@ Fortnite leaks and info
 
 Simpson Collab Coming? -Leaks all over the map
 
-New bug season??? Chapter 6 season 3 is  bug themed
+Fortnite installed the wrong version downtime expectied to be all day
 
-terminator or travis scooot may return!
+terminator or travis scoot may return!
 
-Blitz Royale is Staying! As of now Blitz royal is staying in the game  **After** season 2
+Blitz Royale is Staying for 4 more weeks
 
 New encripted cars coming! 
 
