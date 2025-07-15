@@ -1,1 +1,2 @@
-:I none yet I:
+Goo Gun has a possible unvaulting?
+Fortnite added new exotic weapons?
